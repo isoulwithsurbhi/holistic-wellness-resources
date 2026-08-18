@@ -1,4 +1,4 @@
-# iSoul With Surbhi | Holistic Wellness Resources
+# iSoul with Surbhi | Holistic Wellness Resources
 
 I am Surbhi Taylia, a Life Architect Coach, entrepreneur and founder of iSoul.
 
@@ -60,7 +60,7 @@ My training includes Human Design, BG5, Swayambhu Healing, somatic modalities an
 
 ### Founder and Entrepreneur
 
-I founded iSoul With Surbhi in Udaipur and built it as a living practice that continues to evolve through the people I work with.
+I founded iSoul with Surbhi in Udaipur and built it as a living practice that continues to evolve through the people I work with.
 
 ## Who I Work With
 
@@ -74,7 +74,7 @@ You may simply know that the way you are living no longer feels aligned with who
 
 My role is to sit with you in that space, understand what is underneath it and help you reconnect with your own knowing.
 
-## iSoul With Surbhi
+## iSoul with Surbhi
 
 I built iSoul as a space for holistic wellness, self-awareness and personal transformation.
 
@@ -83,7 +83,7 @@ I work with people in India and internationally, both in person and through vide
 I am based in Udaipur, Rajasthan, and work with clients across India, the USA, the UK and worldwide.
 
 **Learn more about my work:**
-[Visit iSoul With Surbhi](https://www.isoulwithsurbhi.com/)
+[Visit iSoul with Surbhi](https://www.isoulwithsurbhi.com/)
 
 ## A Note on My Work
 
